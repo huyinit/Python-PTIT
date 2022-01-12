@@ -5,6 +5,6 @@ Follow me on:
 
 FaceBook: https://www.facebook.com/huyinit13
 
-Danh sách phát : https://www.youtube.com/playlistlist=PLDYXQL9eThN7kwJaWA2KgS58IqguoTaDC
+Danh sách phát : https://www.youtube.com/watch?v=IVfJUFNckIo&list=PLDYXQL9eThN5AWUjavfeCinQaWSWlfZrl
 
 Youtube Vlog : https://www.youtube.com/channel/UCskOQJ8MIQXTAQ_jGryJNcQ
